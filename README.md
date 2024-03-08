@@ -1,1 +1,0 @@
-# sathishsarma.github.io
